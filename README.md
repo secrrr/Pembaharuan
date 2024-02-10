@@ -1,1 +1,1 @@
-semoga cepet belajar buat backend amin amin bangeett
+Masih pemula puh sepuhh
